@@ -1,0 +1,1 @@
+sejal wayse te computer
